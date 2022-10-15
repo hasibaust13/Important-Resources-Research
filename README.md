@@ -80,168 +80,129 @@ Watch these videos one by one to get all your information
 to start a research paper before your graduation 🎓 
 
 
-How to Write a Research Article 
-https://youtu.be/X3thGQPPtf8
 
 
-Basics of Literature Review | 5 Simple Steps
-https://youtu.be/9w5cqeUVpZ0
+How to Write a Research Article :  https://youtu.be/X3thGQPPtf8
 
 
-How to Write a Review Article
-https://youtu.be/b72N-Qu7A90
+Basics of Literature Review | 5 Simple Steps :  https://youtu.be/9w5cqeUVpZ0
 
 
-How to Develop a Good Research Topic
-https://youtu.be/gGdpxXBcdxY
+How to Write a Review Article : https://youtu.be/b72N-Qu7A90
 
 
-How to write an Abstract
-https://youtu.be/EWdhfgC9DLY
+How to Develop a Good Research Topic : https://youtu.be/gGdpxXBcdxY
 
 
-How to Write a Summary
-https://youtu.be/Dho56HtJPXQ
+How to write an Abstract : https://youtu.be/EWdhfgC9DLY
 
 
-How to Read a Journal Article
-https://youtu.be/5VxM_PG5sb0
+How to Write a Summary : https://youtu.be/Dho56HtJPXQ
 
 
-How to find Research Gaps
-https://youtu.be/vE2HSWW9C-s
+How to Read a Journal Article : https://youtu.be/5VxM_PG5sb0
 
 
-Problem Statement
-https://youtu.be/98vOS9yihRA
+How to find Research Gaps : https://youtu.be/vE2HSWW9C-s
 
 
-How to add or update articles in Google Scholar ?
-https://youtu.be/fTlsRufXbDw
+Problem Statement: https://youtu.be/98vOS9yihRA
 
 
-How to Write a Strong Thesis Statement
-https://youtu.be/3y4tsQwHOUY
+How to add or update articles in Google Scholar ? : https://youtu.be/fTlsRufXbDw
 
 
-How to identify a research gap ?
-https://youtu.be/gyimuqAdYyo
+How to Write a Strong Thesis Statement : https://youtu.be/3y4tsQwHOUY
 
 
-Five Simple Rules to Avoid Plagiarism https://youtu.be/iBm_kj8jNZM
-Differences of Useful terms used in Research Methodology
-https://youtu.be/fcnKStMNvuQ
+How to identify a research gap ? : https://youtu.be/gyimuqAdYyo
 
 
-Difference between Research Methods and Research Methodology https://youtu.be/RSUfNkJFWeU
-Differences between Theoretical Framework and Conceptual Framework
-https://youtu.be/qXeWfhc-X0I
+Five Simple Rules to Avoid Plagiarism : https://youtu.be/iBm_kj8jNZM
 
 
-Differences between Reliability and Validity
-https://youtu.be/qXeWfhc-X0I
+Differences of Useful terms used in Research Methodology : https://youtu.be/fcnKStMNvuQ
 
 
-Differences between Review Paper vs Research Paper
-https://youtu.be/t5TTqfixL2A
+Difference between Research Methods and Research Methodology : https://youtu.be/RSUfNkJFWeU
 
 
-Data Collection Websites
-https://youtu.be/fN7RXVg4Q9Q
+Differences between Theoretical Framework and Conceptual Framework : https://youtu.be/qXeWfhc-X0I
 
 
-Interpretation of Regression Analysis
-https://youtu.be/E-Gd8WNa1N8
+Differences between Reliability and Validity : https://youtu.be/qXeWfhc-X0I
 
 
-Regression Analysis with Scientific Calculator
-https://youtu.be/NHYLthpxQnw
+Differences between Review Paper vs Research Paper : https://youtu.be/t5TTqfixL2A
 
 
-How to install Add-ins
-https://youtu.be/yku_A6f4I78
+Data Collection Websites : https://youtu.be/fN7RXVg4Q9Q
 
 
-How to select Research Topic
-https://youtu.be/1QuZ0Dp9i3g
+Interpretation of Regression Analysis : https://youtu.be/E-Gd8WNa1N8
 
 
-How to cite and download articles from google scholar
-https://youtu.be/fwnjg7jkvwI
+Regression Analysis with Scientific Calculator : https://youtu.be/NHYLthpxQnw
 
 
-Differences Between Google and Google Scholar
-https://youtu.be/gJFA7tZA4nU
+How to install Add-ins : https://youtu.be/yku_A6f4I78
 
 
-How to publish a research article
-https://youtu.be/7qlPcSk7vEo
+How to select Research Topic: https://youtu.be/1QuZ0Dp9i3g
 
 
-Literature Databases
-https://youtu.be/2WV0K8AaDqo
+How to cite and download articles from google scholar : https://youtu.be/fwnjg7jkvwI
 
 
-Basics of MS Excel
-https://youtu.be/pbHbnHD_EyM
+Differences Between Google and Google Scholar : https://youtu.be/gJFA7tZA4nU
 
 
-Research Methods For Business: A Skill Building Approach By UMA SEKARAN
-https://youtu.be/lW-tYvM7Kbk
+How to publish a research article : https://youtu.be/7qlPcSk7vEo
 
 
-Join For More : Think Bright Academy 
-Best Books of Research for beginners
+Literature Databases : https://youtu.be/2WV0K8AaDqo
 
 
-https://youtu.be/OeACYQwcgvU
-Best Academic Paper Writing Books
+Basics of MS Excel : https://youtu.be/pbHbnHD_EyM
 
 
-https://youtu.be/c3aB7rI2mv8
-How to Convert Word to PDF | Without Software or Internet
+Research Methods For Business: A Skill Building Approach By UMA SEKARAN : https://youtu.be/lW-tYvM7Kbk
 
 
-https://youtu.be/_ITupCafSyk
-How to Convert PDF to word | Without Software or Internet
+Join For More : Think Bright Academy Best Books of Research for beginners : https://youtu.be/OeACYQwcgvU
 
 
-https://youtu.be/5BzZGghbFJw
-Guidelines for Writing a Thesis or Dissertation
+Best Academic Paper Writing Books : https://youtu.be/c3aB7rI2mv8
 
+How to Convert Word to PDF | Without Software or Internet : https://youtu.be/_ITupCafSyk
 
-https://youtu.be/JIumBcr21yU
-How to write the introduction?
 
+How to Convert PDF to word | Without Software or Internet : https://youtu.be/5BzZGghbFJw
 
-https://youtu.be/S-koanSBMOY
-MCQs on Research Methodology
 
+Guidelines for Writing a Thesis or Dissertation : https://youtu.be/JIumBcr21yU
 
-Important for all Competitive Examinations
-https://youtu.be/xKh3SLWweWs
 
+How to write the introduction? : https://youtu.be/S-koanSBMOY
 
-Research Proposal Presentation Speech
-https://youtu.be/RO_V_UQ9NPE
 
+MCQs on Research Methodology Important for all Competitive Examinations : https://youtu.be/xKh3SLWweWs
 
-Article Writing Pros and Cons
-https://youtu.be/HUYybGlHGEU
 
+Research Proposal Presentation Speech : https://youtu.be/RO_V_UQ9NPE
 
-History of Gold Prices in Pakistan
-https://y2u.be/F3-jAfeO5Hc
 
+Article Writing Pros and Cons : https://youtu.be/HUYybGlHGEU
 
-Join : Think Bright 
-Also On Instagram : https://cutt.ly/0ObpkNS
+
+History of Gold Prices in Pakistanhttps : //y2u.be/F3-jAfeO5Hc
+
+
+Join : Think Bright Also On Instagram : https://cutt.ly/0ObpkNS
 
 
 #thinkbright #thinkbrightxyz #thinkbrightacademy
 #tba #learning #coursera #udemy #alison #LinkedInLearning
-
-
 #researchpaper #howtowriteresearchpaper #higherstudy
 
 
